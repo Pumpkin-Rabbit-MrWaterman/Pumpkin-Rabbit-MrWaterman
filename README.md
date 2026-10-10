@@ -2,10 +2,55 @@
 
 ---
 
-[![2fe033a239dc840b4009a037fc97ed00.jpg](https://i.postimg.cc/FKTRBqVC/2fe033a239dc840b4009a037fc97ed00.jpg)](https://postimg.cc/zLR8LxMT)
+<!-- artists : @linquinttt on twt. inspo by @pueriled and @jean_ryt on pin. both of their works r adorbs -->
+
+<p align="center">
+  <img src="https://files.catbox.moe/2bsu2s.png" width="100%">
+</p>
+
+<p align="center">
+  →' Shelly / Shell — 14+ ←<br>
+  → she/her · any pronouns ﹙ ⎯⎯ ! 🦴 ₊ᶻ ←<br>
+  → Demisexual ꜝ Dandy's World ! ⁎ Non-binary ←
+</p>
+
+<p align="center">
+  <img src="https://files.catbox.moe/ho7crl.png" width="100%">
+</p>
+
+<p align="center">
+  ♡ Welcome to my little space. ♡ 🕯️
+  <img src="https://files.catbox.moe/giq2ue.png" width="20">
+  ᯇ ' ◟ ♡ ◝
+</p>
+
+<p align="center">
+  <img src="https://files.catbox.moe/giq2ue.png" width="20">
+  ᯇ ' Quiet soul, music & fantasy lover. ◟ ♡ ◝
+</p>
+
+<p align="center">
+  ✧ ࿁ ˙ ♡
+</p>
+
+<p align="center">
+  ♡ likes : music, games, dragons & quiet places<br>
+  ♡ dislikes : loud noises, drama & disrespect<br>
+  ♡ please respect my boundaries. 🪶
+</p>
+
+<p align="center">
+  + <a href="https://github.com/Jieannluvvsmonsterdrink">@Jieannluvvsmonsterdrink</a> ~! +
+</p>
+
+<p align="center">
+  ˋ ! <img src="https://files.catbox.moe/unj1dl.png" width="30">
+</p>
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7D595&width=435&lines=Finished+as+fast+as+a+Gallimimus!)](https://git.io/typing-svg)
+![](https://files.catbox.moe/kdbtzl.png)
+
+
 
 ---
 
