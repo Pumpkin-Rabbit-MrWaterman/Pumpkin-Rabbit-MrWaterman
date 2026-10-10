@@ -1,54 +1,79 @@
 [![5a271a88415d1075d79840317ad3dc1f.jpg](https://i.postimg.cc/SKxCZHMx/5a271a88415d1075d79840317ad3dc1f.jpg)](https://postimg.cc/zy4yvt7s)
 
 ---
+<div align="center">
 
-<!-- artists : @linquinttt on twt. inspo by @pueriled and @jean_ryt on pin. both of their works r adorbs -->
+<img src="https://files.catbox.moe/2bsu2s.png" width="100%" alt="Shelly header">
 
-<p align="center">
-  <img src="https://files.catbox.moe/2bsu2s.png" width="100%">
-</p>
+<br><br>
 
-<p align="center">
-  →' Shelly / Shell — 14+ ←<br>
-  → she/her · any pronouns ﹙ ⎯⎯ ! 🦴 ₊ᶻ ←<br>
-  → Demisexual ꜝ Dandy's World ! ⁎ Non-binary ←
-</p>
-
-<p align="center">
-  <img src="https://files.catbox.moe/ho7crl.png" width="100%">
-</p>
+<h1 align="center">
+  Shelly
+  <br>
+  Fossilisation
+</h1>
 
 <p align="center">
-  ♡ Welcome to my little space. ♡ 🕯️
-  <img src="https://files.catbox.moe/giq2ue.png" width="20">
-  ᯇ ' ◟ ♡ ◝
+  <b>Shelly / Shell</b> — 14+
+  <br>
+  she/her · any pronouns 🦴 ₊ᶻ
+  <br>
+  Demisexual · Non-binary · Dandy's World
 </p>
 
-<p align="center">
-  <img src="https://files.catbox.moe/giq2ue.png" width="20">
-  ᯇ ' Quiet soul, music & fantasy lover. ◟ ♡ ◝
+<br>
+
+<img src="https://files.catbox.moe/ho7crl.png" width="100%" alt="Decorative divider">
+
+<br><br>
+
+<h3>♡ Welcome to my little space. ♡ 🕯️</h3>
+
+<p>
+  Quiet soul, music &amp; fantasy lover.
+  <br>
+  ᯇ⠀'⠀◟ ♡ ◝
 </p>
 
-<p align="center">
-  ✧ ࿁ ˙ ♡
+<br>
+
+<img src="https://files.catbox.moe/giq2ue.png" width="35" alt="Decoration">
+
+<br><br>
+
+<h3>✧ About me 🪶</h3>
+
+<p>
+  ♡ likes : music, games, dragons &amp; quiet places
+  <br>
+  ♡ dislikes : loud noises, drama &amp; disrespect
+  <br>
+  ♡ please respect my boundaries.
 </p>
 
-<p align="center">
-  ♡ likes : music, games, dragons & quiet places<br>
-  ♡ dislikes : loud noises, drama & disrespect<br>
-  ♡ please respect my boundaries. 🪶
+<br>
+
+<p>
+  ── ⋆⋅☆⋅⋆ ──
 </p>
 
-<p align="center">
-  + <a href="https://github.com/Jieannluvvsmonsterdrink">@Jieannluvvsmonsterdrink</a> ~! +
+<p>
+  <a href="https://github.com/Jieannluvvsmonsterdrink">
+    @clear7458-pixel
+  </a>
 </p>
 
-<p align="center">
-  ˋ ! <img src="https://files.catbox.moe/unj1dl.png" width="30">
-</p>
+<br>
 
+<img src="https://files.catbox.moe/unj1dl.png" width="50" alt="Decoration">
 
-![](https://files.catbox.moe/kdbtzl.png)
+<br><br>
+
+<img src="https://files.catbox.moe/kdbtzl.png" width="100%" alt="Bottom banner">
+
+</div>
+ 
+
 
 
 
